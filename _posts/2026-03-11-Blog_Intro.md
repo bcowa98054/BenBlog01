@@ -1,0 +1,5 @@
+---
+title: "What am I doing"
+date: 2026-03-11
+---
+My back has once again thrown itself out somehow. I haven't done anything in recent memory to exacerbate it but nonetheless it seems I'm stuck for the time being with this pain. Anyways, its the perfect excuse to sit down and start a blog. Hello. I'm Ben. Welcome to my page. I hope to write my musings on my current reads and feels here. I intend to start with my current project of fighting through Hegel's Phenomenology of Spirit (PoS) which has completely absorbed my life. Everytime I come to this book, I come out with a less-than adequate sense of what I have just read. Maybe that's part of what Hegel's whole project entails for consciousness coming to know its own self and limitations. For me however, learning how to reach and push forward from footholds in my understanding of Hegel's development of consciousness understanding itself would be nice. As my first non-introductory blog post I hope to write on my understanding of the PoS introduction and follow this with an exploration of the chapter on Force and Understanding. Thanks for visiting again. 
